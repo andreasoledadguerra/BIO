@@ -4,7 +4,7 @@ Creo firmemente en el poder transformador de la tecnología para abordar desafí
 <br><br>¡Estoy emocionada por la oportunidad de colaborar en proyectos interesantes y desafiantes! 
 Si buscas a alguien apasionada, orientado a resultados y con un enfoque fresco, ¡no dudes en conectarte conmigo! 
 Juntos, podemos crear algo asombroso. 🚀💻
-<br><br>¡Gracias por visitar mi perfil! 👨‍💻✨
+<br><br>¡Gracias por visitar mi perfil! 👩🏾‍💻✨
 
 
 ## 🌐 Socials:
